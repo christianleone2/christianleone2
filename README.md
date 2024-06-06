@@ -7,5 +7,5 @@
 - ⚡ Fun fact: gosto de games
 - Futebol 
 - Real Madri
-
+- League of Legends
 
